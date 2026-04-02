@@ -1,4 +1,4 @@
-
+welcome to bloxburg smrt Scripts Free: inf-money & auto-build brings you the best free scripts for welcome to bloxburg, featuring inf-money and auto-build. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
